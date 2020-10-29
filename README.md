@@ -1,0 +1,2 @@
+# sistempakar
+sistem pakar esq 
